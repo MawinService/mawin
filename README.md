@@ -1,5 +1,5 @@
 Hi 👋 My name is Thinnakorn Sangsong 
-Rangsit University student 
+Rangsit University student /n
 🌍 I'm based in Chonburi *
 ✉️ You can contact me at [thinnakorn.s69@rsu.ac.th](mailto:thinnakorn.s69@rsu.ac.th) * 
 💬 Ask me about my hobbies, watching YouTube
